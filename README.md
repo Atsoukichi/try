@@ -1,0 +1,2 @@
+# try
+ne yaptığımı bilmiyorum
